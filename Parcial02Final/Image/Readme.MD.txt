@@ -1,0 +1,1 @@
+https://trello.com/b/KtSBuNoa/planificacion-parcial02
